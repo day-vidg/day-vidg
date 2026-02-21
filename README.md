@@ -18,8 +18,8 @@ I enjoy experimenting with different languages and frameworks, so you’ll find 
 - Software engineering best practices  
 
 ## 📫 Connect with Me
-- GitHub: [https://github.com/day-vidg]  
-- LinkedIn: [https://linkedin.com/in/david-gam-ikon]  
+- Instagram: [https://instagram.com/day_vid_g]  
+- Threads: [https://threads.com/day_vid_g]  
 - Email: [davidgamikon@gmail.com]  
 
 ---

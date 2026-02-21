@@ -19,7 +19,7 @@ I enjoy experimenting with different languages and frameworks, so you’ll find 
 
 ## 📫 Connect with Me
 - GitHub: [https://github.com/day-vidg]  
-- LinkedIn: [https://linkedin.com/david-gam-ikon]  
+- LinkedIn: [https://linkedin.com/in/david-gam-ikon]  
 - Email: [davidgamikon@gmail.com]  
 
 ---
